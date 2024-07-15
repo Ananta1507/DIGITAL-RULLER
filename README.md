@@ -12,7 +12,8 @@ Youtube : https://youtu.be/0KR0Exv0Cxk?feature=shared
 
                                                 WIRING DIAGRAM  
                                                 
-![WhatsApp Image 2024-07-08 at 15 05 28](https://github.com/user-attachments/assets/ffac83ee-aa84-4e2a-b6fb-a1e9fcd32fc3)
+![Screenshot (513)](https://github.com/user-attachments/assets/e67e19d8-c4ff-4a6e-9431-d091ea55be5e)
+
 
 
 
